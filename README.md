@@ -70,7 +70,7 @@ Additional Services (Optional)
 	•	25% payment after design approval
 	•	25% final payment upon website launch
 
-I am confident that this website will enhance [Restaurant Name]’s online presence, attract more customers, and improve your digital engagement.
+I am confident that this website will enhance the place pizza’s online presence, attract more customers, and improve your digital engagement.
 
 Please let me know if you have any questions or if you’re ready to proceed. I look forward to bringing your vision to life!
 
